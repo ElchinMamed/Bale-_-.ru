@@ -1,2 +1,2 @@
-# Bale-_-.ru
+# Bale.ru
 Bale (джек рассел)
